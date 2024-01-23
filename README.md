@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👨🏽‍💻 About Me:
 Hello World, I´s Junior Nascimento, be very welcome
 
 
